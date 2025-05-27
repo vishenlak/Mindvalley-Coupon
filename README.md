@@ -1,6 +1,6 @@
 # Mindvalley Coupon To Get 50% Discount + Free Trial [2025]
 
-I have brought you the latest active [**Mindvalley coupon](https://bit.ly/3W5sL0n),** which you can get at Mindvalley for **just $199**.
+I have brought you the latest active [**Mindvalley coupon**](https://bit.ly/3W5sL0n), which you can get at Mindvalley for **just $199**.
 
 Invest in your personal growth without breaking your bank account while using our exclusive Mindvalley discount code to claim **50% off** on your favorite **Mindvalley membership,** which is equivalent to **savings of $299/year** on your membership.
 
